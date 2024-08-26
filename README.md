@@ -1,4 +1,4 @@
-БОГ ПАЛ ОСТАЛИСЬ ТОЛКО ЗМЕИ СОЗДАНИЯ САМОГО ДБЯВОЛА)_) 
+БОГ ПАЛ ОСТАЛИСЬ ТОЛКО ЗМЕИ СОЗДАНИЯ САМОГО ДЬЯВОЛА)_) 
 
 <!---
 SHRXDDER/SHRXDDER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
